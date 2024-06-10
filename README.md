@@ -1,6 +1,6 @@
 ### Boas vindas ao meu perfil 👨‍💻
 
-Meu nome e elie desulme 
+Meu nome e **elie desulme**
 
 - Estou estudando Linguagens de Programação
 - Trabalhar em equipe meu ponto forte
