@@ -10,8 +10,8 @@ Meu nome e **elie desulme**
 
 ### Voce quer entrar em contato comigo 📫
 
-Email: eliedesulmepierre@gmail.com
+**Email**: eliedesulmepierre@gmail.com
 
-Inst: @d3sylm
+**Inst**: @d3sylm
 
 ![](https://media1.tenor.com/m/DS8Co_JAaN8AAAAC/albert.gif)
